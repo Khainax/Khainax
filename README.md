@@ -11,7 +11,7 @@
 
 <p align="center"><img src="https://i.pinimg.com/736x/40/fe/9b/40fe9bf90bd95dbcafd8a36c30e32222.jpg" width="350" /></p>
 
-<p align="center"> "Because the thought of losing you for 33,550,336 was something that I can never bare." </p>
+<p align="center"> "Because the thought of losing you for 33,550,336 was something that I can never bear." </p>
 
 ****
 
